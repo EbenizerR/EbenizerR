@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EbenizerR
-- 👀 I’m interested in ...coding and working.
-- 🌱 I’m currently learning ...how to code and run a succesful business.
+- 👀 I’m interested in ...coding, studying business books and working out.
+- 🌱 I’m currently learning ...how to code and run a successful online  business.
 - 💞️ I’m looking to collaborate on ...a few coding projects.
 - 📫 How to reach me ... rwangahebenezer@gmail.com
 
